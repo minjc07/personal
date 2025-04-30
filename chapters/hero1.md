@@ -2,7 +2,7 @@
 
 Why do people keep asking me what I want to do in the future? I barely know what I’m going to do tomorrow.
 
-I sat in Mr. Browning’s office, a cramped room that had seen too many students over the years. The wallpaper peeled off the yellow walls and dust bunnies hid in the corners of the room. If the place didn’t have the faded motivational posters—the ones with inspirational quotes and pictures of students that were way too happy to do their math homework, you could have mistaken it for the janitor’s closet. 
+I sat in Mr. Browning’s office, a cramped room that had seen too many students over the years. The wallpaper peeled off the yellow walls, and dust bunnies hid in the corners of the room. If the place didn’t have the faded motivational posters—the ones with inspirational quotes and pictures of students that were way too happy to do their math homework, you could have mistaken it for the janitor’s closet. 
 
 Mr. Browning rummaged through some files from a rusty cabinet and tossed them onto his cluttered desk. He readjusted his thin wire-frame glasses, which were down to his nose, licked his fingers, and began shuffling through the mess. The papers fanned the steam coming from his coffee mug, which read, "World’s Okayest Guidance Counsellor".
 
